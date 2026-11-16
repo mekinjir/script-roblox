@@ -1,0 +1,1 @@
+aduh logger pepek anjing meki hub kampang ryota nih dek
