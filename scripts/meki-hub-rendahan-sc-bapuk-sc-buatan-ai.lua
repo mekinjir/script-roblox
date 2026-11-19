@@ -1,0 +1,1 @@
+kampang lu kick gua karna kalah argument wwkwkk ga pandaii berargument mana bilang html kaga di enc lagi ngakakak belajar lagi nyak jadi developer jangan ngandelin ai ntar bingung fix / update fitur nya
